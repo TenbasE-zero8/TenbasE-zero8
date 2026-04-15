@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TenbasE-zero8
 - 👀 I’m interested in ... Working on projects , Learning , Connecting with other developers...
-- 🌱 I’m currently learning ... C, HTML
+- 🌱 I’m currently learning ... Cybersecurity , Python
 - 📫 How to reach me ... Discord ID - tenbase08
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact:   -.-- --- ..- / -.-. --- -. ...- . .-. - . -.. / - .... .. ... / -- . ... ... .- --. . / ..-. .-. --- -- / -- --- .-. ... . / -.-. --- -.. . / - --- / . -. --. .-.. .. ... ....
